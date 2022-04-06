@@ -1,4 +1,4 @@
-# Hii 5u00n and my name is Suren Hembram
+# Hi i am 5u00n and my name is Suren Hembram
 
 ## Feels good to be here 
 
